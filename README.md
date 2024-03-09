@@ -2,7 +2,7 @@
 
 # 🍕 Christian's Top 8 Page🍕
 
-## bdougie has <!-- follower-counter -->2239<!-- /follower-counter --> followers
+## Christian Barbosa has <!-- follower-counter -->2239<!-- /follower-counter --> followers
 
 [@aprilspeight](https://github.com/aprilspeight) | [@Brawrdon](https://github.com/Brawrdon) | [@dayhaysoos](https://github.com/dayhaysoos) | [@ifiokjr](https://github.com/ifiokjr)
 --- | --- | --- | ---
